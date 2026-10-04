@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi 👋, I'm Hieu Bui<br>CSE student @OuluUni<br>
+Hi 👋, I'm Hieu Bui<br>Information Engineering student @TUM<br>
 
 
 ## 🌐 Socials:
